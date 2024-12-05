@@ -23,7 +23,7 @@
 ![슬라이드16](https://github.com/user-attachments/assets/e0624d7f-395a-42f6-9a2d-1ae76f9bc353)
 
 
-## 최종 결과
+## 평가 점수
 - 1등
   
 ![2024-10-16 16 19 24](https://github.com/user-attachments/assets/26183842-c05d-41aa-9a7b-4e8cfe6ba340)
